@@ -1,0 +1,2 @@
+# weighbridge-manufacturers-india
+'Technoweighindia' manufacturers, suppliers and exporters weighbridge machine is one of the leading and fastest growing Company of its kind. Precision Electronic Instruments Co. manufactures Weighing Machines capacities ranging from 0.01 gm to 100 tons, we also manufacture all kind of electronic weighbridge or weighbridge. Right from our incorporation it has been our endeavor to develop excellent quality, cost effective, accurate and reliable weighing machines.
